@@ -1,4 +1,4 @@
-<b>heyyyy its réy :3<b/>
+<i>heyyyy its réy :3<i/>
 <br/>
 No AI! 🙅🏾‍♂️
 <br/>
