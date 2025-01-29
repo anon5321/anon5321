@@ -1,6 +1,6 @@
-heyyyy its réy :3
-No AI! 🙅🏾‍♂️
-Rénon v1.1.1 - (Update summary every Wednesday on Instagram)
+heyyyy its réy :3\n
+No AI! 🙅🏾‍♂️\n
+Rénon v1.1.1 - (Update summary every Wednesday on Instagram)\n
 https://linktr.ee/anon5321
 
 <!---
