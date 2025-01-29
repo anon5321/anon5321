@@ -1,3 +1,4 @@
+<img src="Business Card Background.png"/>
 <i>heyyyy</i> its réy :3
 <br/>
 No AI! 🙅🏾‍♂️
